@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @pouldian
+- 👀 I’m interested in Coffee
+- 🌱 I’m currently bachelor degree on Economic Development
+- I'd love to collaborate on copy writing project
+- I'm currently Business Development excecutive on Farmacare.id
